@@ -10,3 +10,11 @@
 .
 
 ![image](https://github.com/user-attachments/assets/9740e207-f768-405c-bc13-d99462d3e609)
+
+.
+
+> ## Other especillizations 
+
+.
+
+![image](https://github.com/user-attachments/assets/a2b1d36d-82d5-4c79-a0b0-7ab860583802)
