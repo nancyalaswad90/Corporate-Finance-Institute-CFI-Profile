@@ -3,7 +3,7 @@
 > # [  Corporate Finance Institute® (CFI) Profile ](https://dashboard.corporatefinanceinstitute.com/financial-modeling-valuation-analyst-fmva/)
 
 
-- [Financial Modeling & Valuation Analyst (FMVA®) Certification](https://corporatefinanceinstitute.com/certifications/financial-modeling-valuation-analyst-fmva-program/)
+- [Financial Modeling & Valuation Analyst (FMVA®) Certification](https://corporatefinanceinstitute.com/certifications/financial-modeling-valuation-analyst-fmva-program/) with detailed certification
 
 > ### [FMVA.](https://corporatefinanceinstitute.com/certifications/financial-modeling-valuation-analyst-fmva-program/) عبارة عن ١٤ كورس متطلب اساسي  ٣ اختياري  && [Self-Study]()
 
